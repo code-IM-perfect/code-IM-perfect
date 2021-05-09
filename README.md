@@ -1,4 +1,4 @@
-Hey! From on you are one of the Elite <0.000000003% people that will ever get the chance to see read this.
+Hey! From on you are one of the Elite <0.000000003% people that will read this...EVER
 
 If you came here by mistake...you will be one of them anyways 😑
 
